@@ -1,4 +1,4 @@
-## uncool inc,.
+## uncool inc.
 
 <!--
 
